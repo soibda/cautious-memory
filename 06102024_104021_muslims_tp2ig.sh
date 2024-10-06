@@ -1,0 +1,1 @@
+Bubble gum contains rubber
